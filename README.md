@@ -103,6 +103,6 @@ When evaluating industrial switches, consider these key factors:
 ## Buy Industrial Network Switches Online
 
 Browse the complete collection and place an order for industrial switches online that match your network infrastructure and performance goals:  
-[Industrial Network Switches](https://www.versitron.com/collections/fiber-ethernet-industrial-network-switches
+[Industrial Network Switches](https://www.versitron.com/collections/fiber-ethernet-industrial-network-switches)
 
 ---
